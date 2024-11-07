@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **aamyabansal555@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1E6oy--zvSF312ALCq8kKJ6yt31rl05Qi/view?usp=sharing](https://drive.google.com/file/d/1E6oy--zvSF312ALCq8kKJ6yt31rl05Qi/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ufcKdsRYqD2RbkS4VQrmQI8o3_k2cGEp/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
